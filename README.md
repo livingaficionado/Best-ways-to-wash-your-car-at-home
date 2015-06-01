@@ -13,4 +13,17 @@ Wash your car out whenever you can but at least once a week on Sundays. Don’t 
 <b>8. Rinse off the interiors</b> of the nearby tyre areas from different angles to get rid of the mud etc deposited.<br>
 <b>9. Hose everything</b> once again and then pat dry with fresh towels or soft clothes.<br>
 <b>10. Every now and then</b> make sure you <b>don’t forget to touch up</b> and throw a cloth about to get rid of any settling dirt.<br>
+Some alternatives to your regular products for car cleaning no matter if you’re at home or not that you can use can be:
+* Hair conditioner for shine.
+
+* Windshields can be cleaned with fizz cola to remove streaks and blotches.
+
+* You can use the normal window cleaners to clean your car lights and headlights.
+
+* You can use baby wipes for cleaning glass.
+
+* A female maxi-pad can be used with its sticky side to the windshield glass and by rubbing it vigorously you can generate wax like shine on the windshield.
+
+Always make sure when you clean your car you start from the top and work your way downwards to the bottom of the car.
+
 Read More on Cars - http://www.livingaficionado.com/cars/
