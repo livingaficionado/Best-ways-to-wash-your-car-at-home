@@ -13,4 +13,4 @@ Wash your car out whenever you can but at least once a week on Sundays. Don’t 
 <b>8. Rinse off the interiors</b> of the nearby tyre areas from different angles to get rid of the mud etc deposited.<br>
 <b>9. Hose everything</b> once again and then pat dry with fresh towels or soft clothes.<br>
 <b>10. Every now and then</b> make sure you <b>don’t forget to touch up</b> and throw a cloth about to get rid of any settling dirt.<br>
-<a href:="http://www.livingaficionado.com/cars/">Read More on Cars.</a>
+Read More on Cars - http://www.livingaficionado.com/cars/
